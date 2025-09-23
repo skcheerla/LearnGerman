@@ -1,6 +1,10 @@
-Absolutely! Creating **100 sentences with “I would like to” (Ich möchte …)** in German is a big but very useful exercise. I can generate them in a **structured, practical way** so you can learn everyday situations, work, hobbies, travel, food, and more.
+✅ Now you have **100 practical “Ich möchte …” sentences** covering:
 
-Here’s the **first batch of 50 sentences**; then I can provide the remaining 50 in the next step to make it easier to digest and memorize:
+* Everyday life
+* Work & study
+* Food & drink
+* Travel & hobbies
+* Shopping, socializing, health, and technology
 
 ---
 
@@ -141,16 +145,4 @@ Perfect! Here’s the **next 50 sentences** with **“Ich möchte …”** in Ge
 100. Ich möchte neue Länder entdecken. – I would like to discover new countries.
 
 ---
-
-✅ Now you have **100 practical “Ich möchte …” sentences** covering:
-
-* Everyday life
-* Work & study
-* Food & drink
-* Travel & hobbies
-* Shopping, socializing, health, and technology
-
-If you want, I can also **create a table with all 100 sentences + English meaning** in a **single sheet** that’s perfect for printing or reviewing quickly.
-
-Do you want me to do that next?
 
