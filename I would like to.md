@@ -1,4 +1,4 @@
-✅ Now you have **100 practical “Ich möchte …” sentences** covering:
+✅ Now you have **100 practical “Ich möchte …” ( I would like to )sentences** covering:
 
 * Everyday life
 * Work & study
