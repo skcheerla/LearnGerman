@@ -174,3 +174,181 @@ Perfect! Let’s create a **list of 100+ daily-use sentences in German using “
 I can also make a **compressed version with just 1-2 words after “Ich will” for rapid speaking practice**, so you can learn to **think in German naturally**.
 
 Do you want me to do that?
+
+Perfect! Let’s make a **list of 100+ sentences using “I don’t want” in German**, which is **„Ich will nicht …“**. I’ll organize them by **daily life, work, travel, food, hobbies, social situations, etc.** for practical learning.
+
+---
+
+# 🔹 100+ Sentences with **„Ich will nicht …“** (I don’t want…)
+
+### 1–10: Basic statements
+
+1. Ich will nicht schlafen. – I don’t want to sleep.
+2. Ich will nicht nach Hause gehen. – I don’t want to go home.
+3. Ich will nicht essen. – I don’t want to eat.
+4. Ich will nicht trinken. – I don’t want to drink.
+5. Ich will nicht fernsehen. – I don’t want to watch TV.
+6. Ich will nicht lesen. – I don’t want to read.
+7. Ich will nicht lernen. – I don’t want to study.
+8. Ich will nicht arbeiten. – I don’t want to work.
+9. Ich will nicht spazieren gehen. – I don’t want to go for a walk.
+10. Ich will nicht joggen. – I don’t want to jog.
+
+---
+
+### 11–20: Food & drink
+
+11. Ich will keinen Kaffee trinken. – I don’t want to drink coffee.
+12. Ich will keinen Tee trinken. – I don’t want to drink tea.
+13. Ich will keine Pizza essen. – I don’t want to eat pizza.
+14. Ich will keinen Kuchen essen. – I don’t want to eat cake.
+15. Ich will keine Schokolade. – I don’t want chocolate.
+16. Ich will kein Bier trinken. – I don’t want to drink beer.
+17. Ich will keinen Wein trinken. – I don’t want to drink wine.
+18. Ich will keinen Salat essen. – I don’t want to eat salad.
+19. Ich will keine Suppe. – I don’t want soup.
+20. Ich will keine Milch trinken. – I don’t want to drink milk.
+
+---
+
+### 21–30: Travel & movement
+
+21. Ich will nicht nach Berlin reisen. – I don’t want to travel to Berlin.
+22. Ich will nicht fliegen. – I don’t want to fly.
+23. Ich will nicht Auto fahren. – I don’t want to drive a car.
+24. Ich will nicht mit dem Bus fahren. – I don’t want to take the bus.
+25. Ich will nicht wandern. – I don’t want to hike.
+26. Ich will nicht schwimmen. – I don’t want to swim.
+27. Ich will nicht ins Ausland gehen. – I don’t want to go abroad.
+28. Ich will nicht in die Stadt gehen. – I don’t want to go to the city.
+29. Ich will nicht nach Hause laufen. – I don’t want to walk home.
+30. Ich will nicht auf die Party gehen. – I don’t want to go to the party.
+
+---
+
+### 31–40: Work & study
+
+31. Ich will nicht arbeiten. – I don’t want to work.
+32. Ich will keine Hausaufgaben machen. – I don’t want to do homework.
+33. Ich will nicht lernen. – I don’t want to study.
+34. Ich will keine E-Mails schreiben. – I don’t want to write emails.
+35. Ich will nicht im Büro sein. – I don’t want to be in the office.
+36. Ich will nicht früh aufstehen. – I don’t want to get up early.
+37. Ich will nicht anrufen. – I don’t want to call.
+38. Ich will nicht präsentieren. – I don’t want to present.
+39. Ich will nicht arbeiten gehen. – I don’t want to go to work.
+40. Ich will nicht telefonieren. – I don’t want to make a phone call.
+
+---
+
+### 41–50: Social & leisure
+
+41. Ich will nicht ausgehen. – I don’t want to go out.
+42. Ich will nicht tanzen. – I don’t want to dance.
+43. Ich will nicht singen. – I don’t want to sing.
+44. Ich will nicht spielen. – I don’t want to play.
+45. Ich will nicht feiern. – I don’t want to celebrate.
+46. Ich will keine Freunde treffen. – I don’t want to meet friends.
+47. Ich will nicht ins Kino gehen. – I don’t want to go to the cinema.
+48. Ich will nicht shoppen gehen. – I don’t want to go shopping.
+49. Ich will nicht fotografieren. – I don’t want to take photos.
+50. Ich will nicht malen. – I don’t want to paint.
+
+---
+
+### 51–60: Health & fitness
+
+51. Ich will nicht joggen gehen. – I don’t want to go jogging.
+52. Ich will nicht trainieren. – I don’t want to train/work out.
+53. Ich will nicht Yoga machen. – I don’t want to do yoga.
+54. Ich will nicht spazieren gehen. – I don’t want to go for a walk.
+55. Ich will nicht früh aufstehen. – I don’t want to get up early.
+56. Ich will nicht meditieren. – I don’t want to meditate.
+57. Ich will nicht gesund essen. – I don’t want to eat healthy.
+58. Ich will nicht abnehmen. – I don’t want to lose weight.
+59. Ich will nicht schwimmen. – I don’t want to swim.
+60. Ich will mich nicht anstrengen. – I don’t want to exert myself.
+
+---
+
+### 61–70: Technology & digital
+
+61. Ich will nicht online gehen. – I don’t want to go online.
+62. Ich will keine Nachrichten lesen. – I don’t want to read news.
+63. Ich will keine E-Mails beantworten. – I don’t want to answer emails.
+64. Ich will kein Video sehen. – I don’t want to watch a video.
+65. Ich will keine Apps benutzen. – I don’t want to use apps.
+66. Ich will nichts posten. – I don’t want to post anything.
+67. Ich will nicht chatten. – I don’t want to chat.
+68. Ich will keinen Laptop benutzen. – I don’t want to use the laptop.
+69. Ich will kein Spiel spielen. – I don’t want to play a game.
+70. Ich will mein Handy nicht benutzen. – I don’t want to use my phone.
+
+---
+
+### 71–80: Shopping & money
+
+71. Ich will nichts kaufen. – I don’t want to buy anything.
+72. Ich will nicht einkaufen gehen. – I don’t want to go shopping.
+73. Ich will kein Kleid kaufen. – I don’t want to buy a dress.
+74. Ich will kein Auto kaufen. – I don’t want to buy a car.
+75. Ich will kein Haus kaufen. – I don’t want to buy a house.
+76. Ich will kein Geld ausgeben. – I don’t want to spend money.
+77. Ich will nichts verkaufen. – I don’t want to sell anything.
+78. Ich will keine Rechnungen bezahlen. – I don’t want to pay bills.
+79. Ich will keinen Vertrag unterschreiben. – I don’t want to sign a contract.
+80. Ich will nicht online shoppen. – I don’t want to shop online.
+
+---
+
+### 81–90: Home & chores
+
+81. Ich will nicht kochen. – I don’t want to cook.
+82. Ich will nicht putzen. – I don’t want to clean.
+83. Ich will nicht waschen. – I don’t want to do laundry.
+84. Ich will nicht bügeln. – I don’t want to iron.
+85. Ich will nicht einkaufen. – I don’t want to go shopping.
+86. Ich will nicht aufräumen. – I don’t want to tidy up.
+87. Ich will nicht spülen. – I don’t want to wash the dishes.
+88. Ich will nicht den Müll rausbringen. – I don’t want to take out the trash.
+89. Ich will nicht gärtnern. – I don’t want to garden.
+90. Ich will nicht reparieren. – I don’t want to repair.
+
+---
+
+### 91–100: Miscellaneous / feelings
+
+91. Ich will nicht arbeiten gehen. – I don’t want to go to work.
+92. Ich will nicht krank sein. – I don’t want to be sick.
+93. Ich will nicht traurig sein. – I don’t want to be sad.
+94. Ich will nicht wütend sein. – I don’t want to be angry.
+95. Ich will nicht müde sein. – I don’t want to be tired.
+96. Ich will nicht nervös sein. – I don’t want to be nervous.
+97. Ich will nicht alleine sein. – I don’t want to be alone.
+98. Ich will nicht warten. – I don’t want to wait.
+99. Ich will nicht verlieren. – I don’t want to lose.
+100. Ich will nicht gestresst sein. – I don’t want to be stressed.
+
+---
+
+### 101–110: Aspirations / life choices
+
+101. Ich will nicht umziehen. – I don’t want to move.
+102. Ich will nicht heiraten. – I don’t want to get married.
+103. Ich will keine Kinder haben. – I don’t want to have children.
+104. Ich will nicht studieren. – I don’t want to study.
+105. Ich will keinen Job wechseln. – I don’t want to change jobs.
+106. Ich will nicht reich werden. – I don’t want to become rich.
+107. Ich will nicht berühmt werden. – I don’t want to become famous.
+108. Ich will nicht ins Ausland ziehen. – I don’t want to move abroad.
+109. Ich will nicht um die Welt reisen. – I don’t want to travel around the world.
+110. Ich will nicht alleine wohnen. – I don’t want to live alone.
+
+---
+
+✅ That’s **110+ sentences with “Ich will nicht …”**, covering **daily life, food, travel, work, hobbies, tech, social life, chores, feelings, and life goals**.
+
+I can also **make a condensed 50-second practice version** where you just say **„Ich will nicht + verb“** for **fast speaking drills**.
+
+Do you want me to do that next?
+
