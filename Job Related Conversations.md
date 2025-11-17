@@ -137,14 +137,11 @@ Breaking it down:
 * **und für Ihren beruflichen und persönlichen Weg alles Gute** = and all the best for your professional and personal path/journey
 
 
+**“Mit freundlichen Grüßen”**
+--
 
+translates to:
 
-
-
-
-
-
-
-
+**“With kind regards”** or simply **“Kind regards”** in English.
 
 
