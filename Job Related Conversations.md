@@ -48,6 +48,18 @@ In English, this means:
 
 *"Thank you again for your application for the position of 'AI Platform Engineer'."* ✅
 
+The sentence:
+
+*"wir haben ihre unterlagen eingehend geprüft"*
+---
+
+translates to:
+
+*"We have carefully reviewed your documents."* ✅
+
+
+
+
 
 
 
