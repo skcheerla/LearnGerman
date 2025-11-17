@@ -123,6 +123,20 @@ Breaking it down:
 * **und das in uns gesetzte Vertrauen** = and the trust placed in us
 * **bedanken wir uns herzlich** = we sincerely thank you / we express our heartfelt thanks
 
+**“Wir wünschen Ihnen viel Glück für Ihre Suche nach einer neuen, interessanten Position und für Ihren beruflichen und persönlichen Weg alles Gute.”**
+--
+
+translates to:
+
+**“We wish you good luck in your search for a new, interesting position and all the best for your professional and personal journey.”**
+
+Breaking it down:
+
+* **Wir wünschen Ihnen viel Glück** = We wish you good luck
+* **für Ihre Suche nach einer neuen, interessanten Position** = in your search for a new, interesting position
+* **und für Ihren beruflichen und persönlichen Weg alles Gute** = and all the best for your professional and personal path/journey
+
+
 
 
 
