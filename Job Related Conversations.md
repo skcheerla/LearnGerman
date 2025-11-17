@@ -76,7 +76,22 @@ or more literally: **“Unfortunately, we cannot bring your application into the
 * **Ihre Bewerbung** = your application
 * **in die engere Wahl ziehen** = shortlist / select for closer consideration
 
+* The German sentence:
 
+**“Bitte betrachten Sie dieses Absagen-Schreiben nicht als generelles Werturteil über Ihre Qualifikation und Ihre Fähigkeiten”**
+---
+
+(translating your fragment and correcting minor typos) means:
+
+**“Please do not consider this rejection as a general judgment of your qualifications and abilities.”**
+
+Breaking it down:
+
+* **Bitte** = Please
+* **betrachten Sie… nicht** = do not consider/regard
+* **dieses Absagen-Schreiben / Absagen** = this rejection / this notice of rejection
+* **als generelles Werturteil** = as a general evaluation/judgment
+* **über Ihre Qualifikation und Ihre Fähigkeiten** = about your qualifications and your abilities
 
 
 
