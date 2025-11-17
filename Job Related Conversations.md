@@ -29,5 +29,27 @@ Examples:
 * *Neue Möglichkeiten entdecken* → **Discover new opportunities**
 * *Deutschland entdecken* → **Explore Germany**
 * * *Unternehmenn entdecken* → **Explore Companies**
+ 
+* The phrase **“Ihre Bewerbung bei der DZ BANK AG”** translates from German to English as:
+
+**“Your application at DZ BANK AG.”**
+
+It is commonly used as a subject line in emails or letters from a company acknowledging or responding to a job application. For example, it could appear in:
+
+* **Acknowledgment of receipt:** “Vielen Dank für Ihre Bewerbung bei der DZ BANK AG” → “Thank you for your application at DZ BANK AG.”
+* **Follow-up correspondence:** “Bezüglich Ihrer Bewerbung bei der DZ BANK AG …” → “Regarding your application at DZ BANK AG …”
+
+You wrote:
+
+*"nochmals vielen dank für ihre bewerbung auf die Stelle 'AI Platform Engineer'"*
+---
+
+In English, this means:
+
+*"Thank you again for your application for the position of 'AI Platform Engineer'."* ✅
+
+
+
+
 
 
