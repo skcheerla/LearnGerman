@@ -28,4 +28,6 @@ Examples:
 
 * *Neue Möglichkeiten entdecken* → **Discover new opportunities**
 * *Deutschland entdecken* → **Explore Germany**
+* * *Unternehmenn entdecken* → **Explore Companies**
+
 
