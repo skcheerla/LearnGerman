@@ -57,6 +57,12 @@ translates to:
 
 *"We have carefully reviewed your documents."* ✅
 
+*unterlagen* - documnets
+
+The German word “geprüft” is the past participle of “prüfen”, which means to check, to examine, or to review.
+The German word “eingehend” means thoroughly, in detail, or comprehensively.
+The German word “Unterlagen” generally means documents, papers, or records
+
 
 
 
