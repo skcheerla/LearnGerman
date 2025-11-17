@@ -110,6 +110,20 @@ Breaking it down:
 * **in diesem Fall** = in this case
 * **einfach** = simply / just
 
+**“Für Ihr Interesse und das in uns gesetzte Vertrauen bedanken wir uns herzlich.”**
+--
+
+translates to:
+
+**“We sincerely thank you for your interest and the trust you have placed in us.”**
+
+Breaking it down:
+
+* **Für Ihr Interesse** = for your interest
+* **und das in uns gesetzte Vertrauen** = and the trust placed in us
+* **bedanken wir uns herzlich** = we sincerely thank you / we express our heartfelt thanks
+
+
 
 
 
