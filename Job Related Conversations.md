@@ -11,7 +11,7 @@ Examples:
 * *Unternehmen bewerben sich bei dir.* → **Companies apply to you.**
 
 
-**“anmelden”** in English means: 👉 **“to register / to sign up / to log in (depending on context).”**
+*“anmelden”*  in English means: 👉 **“to register / to sign up / to log in (depending on context).”**
 
 Examples:
 
