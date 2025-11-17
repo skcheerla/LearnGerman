@@ -63,6 +63,21 @@ The German word “geprüft” is the past participle of “prüfen”, which me
 The German word “eingehend” means thoroughly, in detail, or comprehensively.
 The German word “Unterlagen” generally means documents, papers, or records
 
+**“Leider können wir Ihre Bewerbung nicht in die engere Wahl ziehen”**
+--
+
+translates to:
+
+**“Unfortunately, we cannot shortlist your application”**
+or more literally: **“Unfortunately, we cannot bring your application into the closer selection.”**
+
+* **Leider** = Unfortunately
+* **können wir… nicht** = we cannot
+* **Ihre Bewerbung** = your application
+* **in die engere Wahl ziehen** = shortlist / select for closer consideration
+
+
+
 
 
 
