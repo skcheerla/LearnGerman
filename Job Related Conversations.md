@@ -1,9 +1,11 @@
 *“auf IT Jobsuche”* : 👉 **“looking for an IT job”**  or  👉 **“searching for an IT job.”**
 -------------------------------------------
 
-***“Unternehmen”***  in English means: 👉 **“company”** or 👉 **“business / enterprise.”**
+*“Unternehmen”*  in English means: 👉 **“company”** or 👉 **“business / enterprise.”**
+-----------------------------------------
 
-**“bewerben”** (verb) in English means: 👉 **“to apply”** (usually for a job, university, program, etc.)
+*“bewerben”* (verb) in English means: 👉 **“to apply”** (usually for a job, university, program, etc.)
+--------------------------
 
 Examples:
 
@@ -12,17 +14,15 @@ Examples:
 
 
 *“anmelden”*  in English means: 👉 **“to register / to sign up / to log in (depending on context).”**
+------------------------------
 
 Examples:
 
 * *Ich möchte mich anmelden.* → **I want to register / sign up.**
 * *Bitte melden Sie sich auf der Website an.* → **Please log in to the website.**
 
-**“entdecken”** in English means:
-
-👉 **“to discover”**
-or
-👉 **“to find / to explore.”**
+**“entdecken”** in English means: 👉 **“to discover”** or 👉 **“to find / to explore.”**
+---------------------------------
 
 Examples:
 
