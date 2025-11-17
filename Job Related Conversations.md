@@ -95,6 +95,24 @@ Breaking it down:
 * **über Ihre Qualifikation und Ihre Fähigkeiten** = about your qualifications and your abilities
 
 
+**“Ihr Erfahrungshintergrund und unsere Anforderungen passen in diesem Fall einfach nicht optimal zusammen.”**
+--
+
+translates to:
+
+**“Your experience background and our requirements simply do not match optimally in this case.”**
+
+Breaking it down:
+
+* **Ihr Erfahrungshintergrund** = your experience / professional background
+* **und unsere Anforderungen** = and our requirements
+* **passen… nicht optimal zusammen** = do not fit together optimally / do not match well
+* **in diesem Fall** = in this case
+* **einfach** = simply / just
+
+
+
+
 
 
 
