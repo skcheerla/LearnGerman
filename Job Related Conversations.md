@@ -30,7 +30,8 @@ Examples:
 * *Deutschland entdecken* → **Explore Germany**
 * * *Unternehmenn entdecken* → **Explore Companies**
  
-* The phrase **“Ihre Bewerbung bei der DZ BANK AG”** translates from German to English as:
+  The phrase **“Ihre Bewerbung bei der DZ BANK AG”** translates from German to English as:
+   --
 
 **“Your application at DZ BANK AG.”**
 
