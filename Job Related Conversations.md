@@ -1,7 +1,7 @@
 *“auf IT Jobsuche”* : 👉 **“looking for an IT job”**  or  👉 **“searching for an IT job.”**
 -------------------------------------------
 
-**“Unternehmen”** in English means: 👉 **“company”** or 👉 **“business / enterprise.”**
+***“Unternehmen”***  in English means: 👉 **“company”** or 👉 **“business / enterprise.”**
 
 **“bewerben”** (verb) in English means: 👉 **“to apply”** (usually for a job, university, program, etc.)
 
