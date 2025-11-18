@@ -1,3 +1,37 @@
+The German word **„Seite“** has a few meanings depending on context:
+
+---
+
+## ✅ **Primary meanings of *Seite***
+
+### **1. Page**
+
+Used for books, notebooks, documents.
+**Beispiel:**
+
+* *Bitte lesen Sie die Seite 10.*
+  → Please read page 10.
+
+### **2. Side**
+
+A physical side of something (left/right).
+**Beispiel:**
+
+* *Auf der linken Seite.*
+  → On the left side.
+
+### **3. Website / webpage** (modern usage)
+
+**Beispiel:**
+
+* *Ich habe die Seite geöffnet.*
+  → I opened the webpage.
+
+---
+
+If you want, tell me the sentence where *Seite* appears and I’ll explain the exact meaning.
+
+
 Here is the meaning:
 
 ### ✅ **German:**
