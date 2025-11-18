@@ -1,3 +1,10 @@
+* Ich wache jeden Morgen früh auf -“I wake up early every morning.” *
+  --
+
+Ich wache → jeden Morgen → früh → auf
+(I wake) → (every morning) → (early) → (up)
+
+
 
 *“auf IT Jobsuche”* : 👉 **“looking for an IT job”**  or  👉 **“searching for an IT job.”**
 -------------------------------------------
