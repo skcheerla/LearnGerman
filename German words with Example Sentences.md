@@ -1,3 +1,29 @@
+The German word **„circa“** (often written **ca.**) means:
+
+### **“approximately / about / around”**
+
+It is used when giving an estimate, not an exact number.
+
+---
+
+## ✔ **Examples**
+
+### **1️⃣**
+
+**Die Fahrt dauert circa 30 Minuten.**
+→ The journey takes **about 30 minutes**.
+
+### **2️⃣**
+
+**Er hat circa 100 Euro ausgegeben.**
+→ He spent **around 100 euros**.
+
+---
+
+If you want, I can give more examples or explain it in a specific sentence.
+
+
+
 The German word **„Inhalt“** means **“content”**, **“subject matter”**, or **“contents”** depending on context.
 
 ---
