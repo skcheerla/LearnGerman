@@ -1,3 +1,143 @@
+
+
+
+Here is the corrected German sentence and its meaning:
+
+### ✅ **Correct German:**
+
+**Ich wohne im Hotel *Drei Kronen* in der Parkstraße.**
+
+### (Explanation of corrections:)
+
+* **im Hotel** (not *in Hotel*)
+* **Drei Kronen** is a hotel name → capital letters
+* **Parkstraße** → correct spelling with ß
+
+---
+
+### ✅ **English meaning:**
+
+**I am staying at the hotel “Drei Kronen” on Park Street.**
+
+### Breakdown:
+
+* **Ich wohne** = I am staying / I live
+* **im Hotel Drei Kronen** = at the hotel “Drei Kronen”
+* **in der Parkstraße** = on Park Street
+
+Send the next line — I’ll help you again!
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Können wir uns dann sehen?**
+
+### ✅ **English:**
+
+**Can we meet then?**
+or
+**Can we see each other then?**
+
+### Breakdown:
+
+* **können wir** = can we
+* **uns sehen** = see each other / meet
+* **dann** = then (at that time)
+
+Send the next sentence when you're ready!
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Aber am Dienstag ab 18 Uhr habe ich Zeit.**
+
+### ✅ **English:**
+
+**But on Tuesday from 6 p.m. onward, I have time.**
+or
+**But on Tuesday after 6 p.m., I am free.**
+
+### Breakdown:
+
+* **aber** = but
+* **am Dienstag** = on Tuesday
+* **ab 18 Uhr** = from 6 p.m. onward
+* **habe ich Zeit** = I have time / I am free
+
+Send the next sentence anytime!
+
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Ich muss viel arbeiten, habe viele Termine.**
+
+### ✅ **English:**
+
+**I have to work a lot; I have many appointments.**
+or
+**I must work a lot, I have many meetings/appointments.**
+
+### Breakdown:
+
+* **Ich muss viel arbeiten** = I have to work a lot
+* **habe viele Termine** = I have many appointments/meetings
+
+Feel free to send the next sentence!
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Was möchte Nina heute Abend machen?**
+
+### ✅ **English meaning:**
+
+**What would Nina like to do this evening?**
+or
+**What does Nina want to do this evening?**
+
+### Breakdown:
+
+* **Was** = what
+* **möchte** = would like / wants
+* **Nina** = Nina
+* **heute Abend** = this evening / tonight
+* **machen** = do
+
+Send the next sentence and I’ll explain it too!
+
+
+
+Here is the correct German sentence and its meaning:
+
+### ✅ **Correct German:**
+
+**Wann soll Frau Krause anrufen?**
+
+### ✅ **English meaning:**
+
+**When should Mrs. Krause call?**
+or
+**When is Mrs. Krause supposed to call?**
+
+### Breakdown:
+
+* **Wann** = when
+* **soll … anrufen** = should call / is supposed to call
+* **Frau Krause** = Mrs. Krause
+
+Send the next line — I’ll explain it too!
+
+
+
 Here is the meaning:
 
 ### ✅ **German:**
