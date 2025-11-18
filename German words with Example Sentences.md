@@ -1,3 +1,72 @@
+Here is the **full breakdown, word-by-word meaning, grammar, and English translation** of the sentence:
+
+# 🇩🇪 **Manchmal bleibe ich noch fünf Minuten liegen.**
+
+---
+
+## ✅ **1. Word-by-Word Meaning**
+
+| German           | English                     | Explanation                                   |
+| ---------------- | --------------------------- | --------------------------------------------- |
+| **Manchmal**     | sometimes                   | frequency; how often it happens               |
+| **bleibe**       | stay                        | 1st-person form of *bleiben*                  |
+| **ich**          | I                           | subject                                       |
+| **noch**         | still / for a little longer | adds the meaning of “additional time”         |
+| **fünf Minuten** | five minutes                | duration                                      |
+| **liegen**       | lie / stay lying            | the verb used for “staying in bed lying down” |
+
+---
+
+## ✅ **2. Grammar Breakdown**
+
+### ✔️ **bleiben + liegen**
+
+In German, you say:
+
+* **liegen bleiben** → *to stay lying / to remain lying in bed*
+
+It’s a **verb combination** (bleiben = stay, liegen = lie).
+
+### ✔️ Word order
+
+German uses:
+
+* **Manchmal** (time expression) at the beginning
+* Verb in **2nd position** → *bleibe*
+* Subject → *ich*
+* Time phrase → *noch fünf Minuten*
+* Final activity verb → *liegen*
+
+---
+
+## ✅ **3. Full English Translation**
+
+✔ **“Sometimes I stay lying in bed for another five minutes.”**
+
+or more naturally:
+
+✔ **“Sometimes I stay in bed for five more minutes.”**
+
+---
+
+## ✅ **4. Example Variations**
+
+* **Manchmal bleibe ich länger liegen.**
+  Sometimes I stay in bed longer.
+
+* **Am Wochenende bleibe ich oft liegen.**
+  On weekends I often stay in bed.
+
+* **Ich möchte noch fünf Minuten liegen bleiben.**
+  I want to stay in bed for five more minutes.
+
+---
+
+If you want, I can also break down more sentences from your morning routine!
+
+
+
+
 * Ich wache jeden Morgen früh auf -“I wake up early every morning.” *
   --
 
