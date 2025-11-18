@@ -1,3 +1,66 @@
+Here is the meaning:
+
+### ✅ **German:**
+
+**Zu jedem Text gibt es eine Aufgabe.**
+
+### ✅ **English:**
+
+**For each text, there is a task/exercise.**
+
+### Breakdown:
+
+* **Zu jedem Text** = For each text
+* **gibt es** = there is / there are
+* **eine Aufgabe** = a task / an exercise / an assignment
+
+If you want, I can also help you understand the whole instruction from your test.
+
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Sie hören kurze Gespräche und Ansagen.**
+
+### ✅ **English:**
+
+**You will hear short conversations and announcements.**
+
+### Breakdown:
+
+* **Sie hören** = You hear / You will hear
+* **kurze Gespräche** = short conversations
+* **und** = and
+* **Ansagen** = announcements (like public announcements, messages)
+
+If you want, I can also give pronunciation or example sentences.
+
+
+
+
+Here is the meaning and explanation:
+
+### ✅ **German:**
+
+**Dieser Test hat drei Teile.**
+
+### ✅ **English meaning:**
+
+**This test has three parts.**
+
+### Breakdown:
+
+* **Dieser** = this
+* **Test** = test
+* **hat** = has
+* **drei** = three
+* **Teile** = parts
+
+If you want, I can also provide pronunciation or more example sentences.
+
+
 The German word **„Kandidatenblätter“** (singular: **Kandidatenblatt**) means:
 
 ### **“candidate sheets”**
