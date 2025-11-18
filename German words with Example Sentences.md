@@ -1,3 +1,46 @@
+Here is the meaning:
+
+### ✅ **German:**
+
+**Wie lange dauert der Flug nach München?**
+
+### ✅ **English:**
+
+**How long is the flight to Munich?**
+or
+**How long does the flight to Munich take?**
+
+### Breakdown:
+
+* **Wie lange** = how long
+* **dauert** = lasts / takes
+* **der Flug** = the flight
+* **nach München** = to Munich
+
+If you want, I can help with answer options too.
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Wo macht Familie Bauer Urlaub?**
+
+### ✅ **English:**
+
+**Where is the Bauer family going on vacation?**
+or
+**Where is the Bauer family spending their holiday?**
+
+### Breakdown:
+
+* **Wo** = where
+* **macht … Urlaub** = is going on vacation
+* **Familie Bauer** = the Bauer family
+
+If you have the answer choices, you can send them and I’ll help you pick the correct one.
+
+
 The correct German sentence is:
 
 ### ✅ **Welchen Sport empfiehlt der Arzt?**
