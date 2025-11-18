@@ -1,3 +1,30 @@
+## **Übungssatz – Meaning**
+--
+
+**Übungssatz** means **“practice sentence”** or **“exercise sentence”** used in language learning or training tasks.
+
+---
+
+## **Examples**
+
+### **1️⃣ Beispiel (German):**
+
+**Übungssatz:** *Ich gehe jeden Morgen joggen.*
+**English:** (Practice sentence: *I go jogging every morning.*)
+
+---
+
+### **2️⃣ Beispiel (German):**
+
+**Übungssatz:** *Kannst du mir bitte helfen?*
+**English:** (Practice sentence: *Can you please help me?*)
+
+---
+
+If you want, I can also create **Übungssätze** for vocabulary or grammar topics you’re learning.
+
+
+
 Here is the **full breakdown, word-by-word meaning, grammar, and English translation** of the sentence:
 
 # 🇩🇪 **Manchmal bleibe ich noch fünf Minuten liegen.**
