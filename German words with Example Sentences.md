@@ -2,6 +2,28 @@ Here is the meaning:
 
 ### ✅ **German:**
 
+**Wo gibt es Kleidung für Kinder?**
+
+### ✅ **English:**
+
+**Where can you find clothes for children?**
+or
+**Where is there clothing for children?**
+
+### Breakdown:
+
+* **Wo** = Where
+* **gibt es** = is there / can you find
+* **Kleidung** = clothing / clothes
+* **für Kinder** = for children
+
+If you want, I can help with the answer choices too.
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
 **Welche Zimmernummer hat Herr Schneider?**
 
 ### ✅ **English:**
