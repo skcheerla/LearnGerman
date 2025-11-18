@@ -1,3 +1,33 @@
+The German word **„Inhalt“** means **“content”**, **“subject matter”**, or **“contents”** depending on context.
+
+---
+
+## **Meaning of *Inhalt***
+--
+
+### ✔ **1. Content / Subject matter**
+
+Used for books, texts, movies, lessons, etc.
+**Beispiel:**
+
+* *Der Inhalt des Buches ist sehr interessant.*
+  → The content of the book is very interesting.
+
+### ✔ **2. Contents / What something contains**
+
+Used for bags, boxes, bottles, documents, etc.
+**Beispiel:**
+
+* *Der Inhalt der Flasche ist Wasser.*
+  → The contents of the bottle are water.
+
+---
+
+If you want, I can also give you more examples or explain the word in a specific sentence.
+
+
+
+
 ## **Übungssatz – Meaning**
 --
 
