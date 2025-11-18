@@ -2,6 +2,58 @@ Here is the meaning:
 
 ### ✅ **German:**
 
+**Welche Zimmernummer hat Herr Schneider?**
+
+### ✅ **English:**
+
+**What is Mr. Schneider’s room number?**
+
+### Breakdown:
+
+* **Welche Zimmernummer** = which room number
+* **hat** = has
+* **Herr Schneider** = Mr. Schneider
+
+If you want, you can send the audio or options, and I can help you choose the correct answer.
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Sie hören jeden Text zweimal.**
+
+### ✅ **English:**
+
+**You will hear each text twice.**
+
+### Breakdown:
+
+* **Sie hören** = You will hear
+* **jeden Text** = each text
+* **zweimal** = twice
+
+If you want, I can continue explaining the next lines from your test.
+
+
+The phrase **„Kreuzen Sie an:“** in German means:
+
+### ✅ **“Tick/Check the box:”**
+
+or
+
+### **“Mark with an X:”**
+
+It is an instruction used in tests or forms where you must select the correct answer by putting a **✔ / ✘ / X** in a box.
+
+If you want, send the options — I can help you choose the correct one.
+
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
 **Lesen Sie zuerst die Aufgabe, hören Sie dann den Text dazu.**
 
 ### ✅ **English:**
