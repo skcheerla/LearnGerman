@@ -1,3 +1,25 @@
+Here is the meaning:
+
+### ✅ **German:**
+
+**Der Vater von Mario soll sofort zur Information gehen.**
+
+### ✅ **English meaning:**
+
+**Mario’s father should go to the information desk immediately.**
+or
+**Mario’s father is requested to go to the information desk right away.**
+
+### Breakdown:
+
+* **Der Vater von Mario** = Mario’s father
+* **soll … gehen** = should go / is asked to go
+* **sofort** = immediately / right away
+* **zur Information** = to the information desk / info counter
+
+Send the next sentence if you want to continue!
+
+
 Here is the corrected German sentence and its meaning:
 
 ### ✅ **Correct German:**
