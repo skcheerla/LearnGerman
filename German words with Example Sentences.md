@@ -1,3 +1,38 @@
+The German word **„Kandidatenblätter“** (singular: **Kandidatenblatt**) means:
+
+### **“candidate sheets”**
+
+or
+
+### **“candidate information pages”**
+
+It refers to documents or pages that contain **details about candidates**, for example:
+
+* Job applicants
+* Election candidates
+* Exam candidates
+* Students taking a test
+
+---
+
+## ✔ **Examples**
+
+### **1️⃣**
+
+**Bitte füllen Sie die Kandidatenblätter vor der Prüfung aus.**
+→ Please fill out the candidate sheets before the exam.
+
+### **2️⃣**
+
+**Die Kandidatenblätter enthalten Informationen über die Bewerber.**
+→ The candidate sheets contain information about the applicants.
+
+---
+
+If you want, tell me the exact sentence where you saw it — I can give the precise meaning in that context.
+
+
+
 The German word **„circa“** (often written **ca.**) means:
 
 ### **“approximately / about / around”**
