@@ -1,3 +1,62 @@
+The correct German sentence is:
+
+### ✅ **Welchen Sport empfiehlt der Arzt?**
+
+### ✅ **English meaning:**
+
+**Which sport does the doctor recommend?**
+
+### Breakdown:
+
+* **Welchen Sport** = which sport
+* **empfiehlt** = recommends
+* **der Arzt** = the doctor
+
+If you want, send the options — I can help you choose the correct answer.
+
+
+
+### ✅ **Correct German:**
+
+**Wie lange hat das Museum am Mittwoch geöffnet?**
+
+(“das” instead of **ads**)
+
+### ✅ **English meaning:**
+
+**How long is the museum open on Wednesday?**
+or
+**Until what time is the museum open on Wednesday?**
+
+### Breakdown:
+
+* **Wie lange** = how long / until when
+* **hat … geöffnet** = is open
+* **das Museum** = the museum
+* **am Mittwoch** = on Wednesday
+
+If you have the answer options, send them — I can help you pick the right one.
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
+**Was bestellt die Dame?**
+
+### ✅ **English:**
+
+**What is the lady ordering?**
+
+### Breakdown:
+
+* **Was** = what
+* **bestellt** = orders / is ordering
+* **die Dame** = the lady / the woman
+
+If you have the audio or answer options, I can help you choose the correct one.
+
+
 Here is the meaning:
 
 ### ✅ **German:**
