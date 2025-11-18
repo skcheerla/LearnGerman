@@ -2,6 +2,27 @@ Here is the meaning:
 
 ### ✅ **German:**
 
+**Lesen Sie zuerst die Aufgabe, hören Sie dann den Text dazu.**
+
+### ✅ **English:**
+
+**First read the task, then listen to the text for it.**
+
+### Breakdown:
+
+* **Lesen Sie zuerst** = Read first
+* **die Aufgabe** = the task / exercise
+* **hören Sie dann** = then listen
+* **den Text dazu** = to the text related to it / the text that belongs to it
+
+If you want, I can explain the next sentence from your test as well.
+
+
+
+Here is the meaning:
+
+### ✅ **German:**
+
 **Zu jedem Text gibt es eine Aufgabe.**
 
 ### ✅ **English:**
