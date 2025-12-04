@@ -93,3 +93,61 @@ Here are **positive and negative sample answers** you can use to practice for th
 
 If you want, I can also help you practice with **conversation dialogues**!
 
+Here are **simple positive and negative practice answers** for the question:
+
+### **Question:**
+
+**„Warum frühstückst du jetzt?“**
+(= “Why are you having breakfast now?”)
+
+---
+
+## ✅ **Positive / normal explanations**
+
+* **Weil ich Hunger habe.**
+  (Because I’m hungry.)
+
+* **Weil ich heute spät aufgestanden bin.**
+  (Because I woke up late today.)
+
+* **Weil ich jetzt eine Pause habe.**
+  (Because I have a break now.)
+
+* **Weil ich gleich arbeiten muss.**
+  (Because I have to work soon.)
+
+* **Weil ich vorher keine Zeit hatte.**
+  (Because I didn’t have time earlier.)
+
+---
+
+## ❌ **Negative / refusing the idea**
+
+* **Ich frühstücke gar nicht jetzt.**
+  (I’m not having breakfast now.)
+
+* **Ich esse nicht, ich trinke nur Kaffee.**
+  (I’m not eating, I’m just drinking coffee.)
+
+* **Ich frühstücke später.**
+  (I will have breakfast later.)
+
+* **Ich habe jetzt keinen Hunger.**
+  (I’m not hungry right now.)
+
+---
+
+## ⭐ Friendly natural answers
+
+* **Einfach so, ich habe Lust drauf.**
+  (Just because I feel like it.)
+
+* **Weil es schnell gehen muss.**
+  (Because it needs to be quick.)
+
+* **Weil ich heute einen langen Tag habe.**
+  (Because I have a long day today.)
+
+If you want, I can create a mini-dialogue for practicing!
+
+
