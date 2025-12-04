@@ -39,4 +39,57 @@ Here are **simple positive and negative answers** you can practice for the quest
 
 ---
 
-If you want, I can also give **informal**, **funny**, **very short**, or **conversation-style** answers for practice!
+Here are **positive and negative sample answers** you can use to practice for the question:
+
+### **Question:**
+
+**„Wo frühstückst du heute?“**
+(= “Where are you having breakfast today?”)
+
+---
+
+## ✅ **Positive / direct answers (places)**
+
+* **Ich frühstücke heute zu Hause.**
+  (I’m having breakfast at home today.)
+
+* **Ich frühstücke heute im Büro.**
+  (I’m having breakfast at the office today.)
+
+* **Ich frühstücke heute im Café.**
+  (I’m having breakfast in a café today.)
+
+* **Ich frühstücke heute bei meinen Freunden.**
+  (I’m having breakfast at my friends’ place today.)
+
+---
+
+## ❌ **Negative answers**
+
+* **Ich frühstücke heute nicht.**
+  (I’m not having breakfast today.)
+
+* **Ich weiß noch nicht, wo ich frühstücke.**
+  (I don’t know yet where I will have breakfast.)
+
+* **Heute habe ich keine Zeit zum Frühstücken.**
+  (Today I don’t have time for breakfast.)
+
+* **Ich glaube, ich frühstücke heute gar nicht.**
+  (I think I won’t have breakfast today.)
+
+---
+
+## ⭐ More natural everyday answers
+
+* **Wahrscheinlich zu Hause.**
+  (Probably at home.)
+
+* **Mal sehen, vielleicht im Café.**
+  (Let’s see… maybe in a café.)
+
+* **Unterwegs, ich habe es eilig.**
+  (On the way, I’m in a hurry.)
+
+If you want, I can also help you practice with **conversation dialogues**!
+
